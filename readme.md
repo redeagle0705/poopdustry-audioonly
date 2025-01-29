@@ -68,3 +68,6 @@ https://www.twich.tv/sharptile
 번역:REDEagle0705,sharptile
 
 만든 사람:REDEagle0705
+
+몇몇음악은 유튜브에서 가져온것입니다.
+some musics are from youtube.
